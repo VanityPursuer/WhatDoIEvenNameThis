@@ -8,8 +8,6 @@
 
 - Pronouns : Any but perfer She/Her.
 
-- My personality mostly depends on my mood but I'm usually pretty calm .
-
 ,
 
 -   Fandoms :
