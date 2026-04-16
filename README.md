@@ -60,8 +60,6 @@
 
 - Sometimes  might be offline for a day or 2 (occasionally longer) to be away from screens or if I'm busy .
 
-- I'm homeschooled .
-
 ,
 
 (Idk what else to put but thx for taking your time to read this if you did :D)
