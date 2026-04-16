@@ -8,7 +8,7 @@
 
 - Pronouns : She/Her.
 
-- Teriatary Aroace
+- Pan-orientated Aroace . 
 
 ,
 
