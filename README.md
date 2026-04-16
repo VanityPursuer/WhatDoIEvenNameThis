@@ -8,7 +8,7 @@
 
 - Pronouns : She/Her.
 
-- Aroace .
+- Bi Oriented Aroace .
 
 ,
 
