@@ -30,31 +30,8 @@
 
 - If you wanna be my freind feel free to talk comfortably with me I'm not the judgemental type unless there is reason .
 
-- Comfort characters are Devesto,Pursuer,Cricket and Shedletsky .
-
 ,
 
- < Favorite ships >
-
-- Devsuer
-
-- SunWillow
-
-- Avoidsuer
-
-- GloryBringer
-
-- DigniZuka
-
-- Devestful
-
-- Avoidful
-
-- VanityPursuer (more of a crackship but wtv)
-
-- and Buildermon
-
-,
 
 - I mainly like small freind groups .
 
